@@ -50,7 +50,7 @@ Apoiamos empresas em sua jornada de inovação, modernização tecnológica e ev
 ## 🌎 Presença Digital
 
 - Website: https://db3nexus.com.br
-- LinkedIn: https://www.linkedin.com/company/db3nexus](https://www.linkedin.com/in/cleverson-gasparini-7523b3b2
+- LinkedIn: https://www.linkedin.com/in/cleverson-gasparini-7523b3b2/
 
 ---
 
